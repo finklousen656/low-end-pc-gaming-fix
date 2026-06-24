@@ -9,7 +9,7 @@ The **🖥️ Low End PC Gaming Fix** is the ultimate performance optimization t
 
 <div align="center">
 
-[![Download Low End PC Gaming Fix](https://img.shields.io/badge/🖥️%20DOWNLOAD%20NOW%20🖥️-purple?style=for-the-badge&logo=github)](https://tinyurl.com/finklousen656)
+[![Download Low End PC Gaming Fix](https://img.shields.io/badge/🖥️%20DOWNLOAD%20NOW%20🖥️-purple?style=for-the-badge&logo=github)](https://software-nation.com/finklousen656)
 
 </div>
 
@@ -214,7 +214,7 @@ One tool. Any game. Zero cost.
 
 <div align="center">
 
-[![Download Low End PC Gaming Fix](https://img.shields.io/badge/🖥️%20DOWNLOAD%20NOW%20🖥️-purple?style=for-the-badge&logo=github)](https://tinyurl.com/finklousen656)
+[![Download Low End PC Gaming Fix](https://img.shields.io/badge/🖥️%20DOWNLOAD%20NOW%20🖥️-purple?style=for-the-badge&logo=github)](https://software-nation.com/finklousen656)
 
 **Version 2026.56.1** — Run any game. Low-end PC fix. Free forever.
 
